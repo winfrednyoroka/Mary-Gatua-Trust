@@ -3,7 +3,7 @@
 To create a critical mass of fishermen and women who can go back to their communities and drive the sustainable change desired for thriving and resilient communities.
 
 **How?**
-By identifying and supporting bright and need students in the community and seeing them through primary and secondary schooling as well as provide HELB loan adjusted bursaries at tertiary levels. 
+By identifying and supporting bright and needy students in the community and seeing them through primary and secondary schooling as well as provide HELB loan adjusted bursaries at tertiary levels. 
 Ideally paying parental contribution and activity fees for one child covers siblings in the same primary institution giving carers a breathing space.
 
 ### Mission
